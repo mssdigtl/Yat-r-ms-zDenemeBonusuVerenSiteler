@@ -6,8 +6,8 @@
 </head>
 <body>
 
-<a href="https://resimlink.com/QnGsr_UB0" title="Yatırımsız Deneme Bonusu Veren Siteler">
-    <img src="https://r.resimlink.com/QnGsr_UB0.jpg" alt="Yatırımsız Deneme Bonusu Veren Siteler ve Kazanç Fırsatları" style="max-width: 100%; border: 2px solid #ddd; border-radius: 10px;">
+<a href="https://t.me/+7FPuamFhL5E1YTBk" title="Özel Bonus">
+<img src="https://i.hizliresim.com/1d7hvuc.png" alt="Özel Bonus" style="max-width: 100%; border: 2px solid #ddd; border-radius: 10px;">
 </a>
 
 # 🎁 Yatırımsız Deneme Bonusları ile Hemen Kazanın!  
